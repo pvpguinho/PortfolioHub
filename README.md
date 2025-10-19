@@ -9,3 +9,6 @@ digitais. Tenho experiências tanto em eventos
 profissionais quanto na produção de conteúdos
 audiovisuais, envolvendo direção, roteiro e
 edição.
+
+Email:pedro.vinicius.df@gmail.com
+LinkedIn:https://www.linkedin.com/in/pdro-veloso-de-vasconcelos-38798138b
